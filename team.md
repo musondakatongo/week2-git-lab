@@ -1,1 +1,1 @@
-Team lead: Mapalo Kanyanta
+Team lead: Kanyanta Mapalo
